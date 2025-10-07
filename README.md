@@ -4,5 +4,8 @@
  <img src="https://file.garden/ZmyMAi1zTw_Os_OB/tetratto%20img%20upload/random%20shit/tumblr_7b791876215520a183549b3307a0cacc_db200fb9_2048%20(2)%20(1).png" />
 </p>
 <p align="center">
-TEXT
+<strong>robin's　　dict.</strong>
+</p>
+<p align="center">
+wip
 </p>
