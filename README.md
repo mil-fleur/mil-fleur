@@ -5,7 +5,7 @@
 <img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/robin%20psd%20imgs/imgs/border3" />
 </p>
 <p align="center">
-noxis　ou　nox　　<strong>only</strong>　　　　　𓎟　࿐❀　8teen　　black　　🪷ৎ
+noxis　ou　nox　　<strong>only</strong>　　　𓎟　࿐❀　　　　8teen　　black　　🪷ৎ
 </p>
 <p align="center">
 <strong>trans</strong>　man　　　abropoly　　　mentally　disabled　　　　🌸𓏼♪۪۪　　ノ
