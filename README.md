@@ -9,4 +9,10 @@ noxis　ou　nox　　<strong>only</strong>　　　𓎟　࿐❀　　　　8te
 </p>
 <p align="center">
 <strong>trans</strong>　man　　　abropoly　　　mentally　disabled　　　　🌸𓏼♪۪۪　　ノ
+  
+</p>
+<p align="center">
+<img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/robin%20psd%20imgs/imgs/border%20(6).png" />
+<img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/robin%20psd%20imgs/imgs/tumblr_0b25476b295c8039398946444f7719c1_b8f86a95_540%20(4).png" />
+<img src="https://file.garden/ZmyMAi1zTw_Os_OB/github%20shit/robin%20psd%20imgs/imgs/border%20(6).png" />
 </p>
