@@ -7,3 +7,6 @@
 <p align="center">
 noxis　ou　nox　　<strong>only</strong>　　　　　𓎟　࿐❀　8teen　　black　　🪷ৎ
 </p>
+<p align="center">
+<strong>trans</strong>　man　　　abropoly　　　mentally　disabled　　　　🌸𓏼♪۪۪　　ノ
+</p>
